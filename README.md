@@ -1,6 +1,5 @@
 # About me
 Hello! I'm an Italian person which loves the Wii, DSi and Wii U!<br>
-- I'm currently working on a project called [Yet Another Wii Shop Channel](https://github.com/YetAnotherWSC)<br>
 - Reach me via Discord, GBATemp or [Mail](mailto:hellothisisuport77967966868@gmail.com)
 - I also like Minecraft
 - also check out my [website](https://idkwh.ct8.pl) :3
