@@ -7,7 +7,7 @@ im currently learning Java
 
 - reach me via Discord, GBATemp or [mail](mailto:hellothisisuport77967966868@gmail.com)
 - i also like Minecraft
-- also check out my [website](https://idkwh.ct8.pl) :3
+- also check out my [website](https://idkwhereisthis.name) :3
 
 # <div align="center">stats</div>
 <div align="center">
